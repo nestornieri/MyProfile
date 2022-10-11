@@ -17,7 +17,7 @@ mejorar mis habilidades exponencialmente.
 - Contribuir a proyectos de codigo abierto.
 
 ### 💭 Otros Intereses
-- Libros de fantasia
+- Libros
 - Futbol
 - Criptomonedas
 
